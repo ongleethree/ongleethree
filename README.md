@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm in Secondary 6 in saint louis chachoengsao school <br>My hobbies are learning code , working out , writing code , studying physics<br>
+I'm in Secondary 6 at Saint Louis Chachoengsao School <br>My hobbies are learning code , working out , writing code , studying physics<br>
 
 
 ## 🌐 Socials:
